@@ -1,1 +1,1 @@
-https://dgyouu.github.io/sheesh/
+sheesh
